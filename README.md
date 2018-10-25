@@ -1,1 +1,1 @@
-Simbacoin is the cryptocurrency of the future.
+Cashcoin is the cryptocurrency of the future.
